@@ -1,1 +1,2 @@
 # -Inteligencia-que-transforma-finanzas
+La inteligencia artificial revoluciona los portafolios dinámicos, integrando análisis en tiempo real con estrategias personalizadas. Estos sistemas permiten a los gestores anticipar movimientos de mercado, optimizar decisiones y minimizar riesgos, ofreciendo soluciones adaptadas a las necesidades del inversor. Una nueva perspectiva para la inversión moderna y eficiente.
